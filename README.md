@@ -23,4 +23,4 @@
 本站支持在线播放与磁力下载，满足不同需求，随时随地畅享高清AV资源。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vui20250707/vui2 ）</span>
